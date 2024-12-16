@@ -14,6 +14,9 @@ learning to code is a valuable skil to have because you may need to fix programm
 # November 12, 2024
 people are mad that trump won.
 
+# December 16, 2024
+Yes.
+
 
 # November 4, 2024
 1. it is important to protect your personal and sensitive information when publishing online because someone could steal your information and pretend to be you.
