@@ -34,3 +34,12 @@ technology has changed the way we grow food because we grow them in industries, 
 it excites me because of how far we delevoped.
 it could help me with work.
 to not let it become smart enough.
+
+# February 11, 2025
+| Shape    | Color | Count |
+| -------- | ----- | ----- |
+| Circle   |Green  |    7  |
+| Square   |Yellow |    5  |
+| Hexagon  |Brown  |    6  |
+| Triangle |Purple |     4 |
+| Octagon  |Red    |    3  |
