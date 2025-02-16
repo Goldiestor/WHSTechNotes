@@ -51,3 +51,17 @@ to not let it become smart enough.
 # February 3, 2024
 they should have better technology.
 
+
+
+# January 8, 2025
+i enjoyed being with friends and worikng.
+i would like to code more
+
+
+# January 13, 2025
+i feel like we should be careful around AI.
+
+# January 27, 2025
+bart left the oil cart open.
+
+
