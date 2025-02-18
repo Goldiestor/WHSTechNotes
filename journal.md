@@ -64,4 +64,5 @@ i feel like we should be careful around AI.
 # January 27, 2025
 bart left the oil cart open.
 
-
+# February 18, 2025
+this is not something i learned but it is interesting, it is "does more education lead to less sex?"
