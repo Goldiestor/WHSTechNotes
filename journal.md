@@ -66,3 +66,7 @@ bart left the oil cart open.
 
 # February 18, 2025
 this is not something i learned but it is interesting, it is "does more education lead to less sex?"
+
+
+# February 24, 2025
+i feel like their should be a website on all the slang words.
