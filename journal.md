@@ -69,4 +69,6 @@ this is not something i learned but it is interesting, it is "does more educatio
 
 
 # February 24, 2025
-i feel like their should be a website on all the slang words.
+I feel like their should be a website on all the slang words, the benefits of having these languages in educational apps is so people can stay up to date on some words and don't have to ask their grandkids on what these word means.
+
+I feel like schools shouldn't teach kids these languages because slang language is mostly used to talk to their friends and not adults, misunderstandings of slang might be a problem for some adults because they may never know what they are talking about.
