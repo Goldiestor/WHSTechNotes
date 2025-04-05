@@ -75,3 +75,10 @@ I feel like schools shouldn't teach kids these languages because slang language 
 
 # March 3, 2025
 We were respectful towards the sub and did our work, i don't think we made the sub's job diffcult and i think we made their day. i wouldn't go back and change how we acted because we did our work.
+
+
+# March 24, 2025
+i believe that ai will make the games look better.
+
+# March 31, 2025
+i am feeling good, nothing has been stressful about school. i could use the time to read a book, pass my classes by paying attention. my friends because i trust them with my secrets.
