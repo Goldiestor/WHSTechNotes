@@ -82,3 +82,13 @@ i believe that ai will make the games look better.
 
 # March 31, 2025
 i am feeling good, nothing has been stressful about school. i could use the time to read a book, pass my classes by paying attention. my friends because i trust them with my secrets.
+
+
+
+
+
+
+# April 14,2025
+i don't believe such bans are beneficial because what if people need to go onto the internet and research something but it is restricted, the students might feel sad about not being able to be on their phone and they will pay less attention in class.
+
+i wouldn't mind because i have a flipphone so i'm basically limited to texting, so i would be okay with the restrictions.
