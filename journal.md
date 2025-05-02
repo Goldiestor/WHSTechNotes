@@ -92,3 +92,16 @@ i am feeling good, nothing has been stressful about school. i could use the time
 i don't believe such bans are beneficial because what if people need to go onto the internet and research something but it is restricted, the students might feel sad about not being able to be on their phone and they will pay less attention in class.
 
 i wouldn't mind because i have a flipphone so i'm basically limited to texting, so i would be okay with the restrictions.
+
+
+
+
+
+# April 15, 2025
+Subject: Thank You For Everything You Have Done
+Dear cafeteria staff,
+
+Hello, I hope you had a good day. I wanted to thank you for everythang you have done for us. I appreicate you for making the food and setting it up on the shelves for us to grab. Your work helps nourish our minds so we can continue learning.
+
+Sincerely,
+Zoey
