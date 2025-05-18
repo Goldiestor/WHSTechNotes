@@ -111,3 +111,15 @@ Zoey
 Sally, chocalate, graduation, $35.00
 Michael, vanilla, farewell party, $37.00
 Emma, carrot, birthday, $39.00.
+
+
+
+
+# May 5, 2025
+yes i believe 100 people can win against a gorilla because, there are strength in numbers, they can surround the gorilla and trap it and put it in a cage. If it was a real gorilla, then no, it is probably not smart to fight a real gorilla. people might learn how to be smart about messing with a gorilla but if they were face to face they might learn how to defend themselves. It shows people what to do face to face, and yes it guves us entertainment and education.
+
+
+
+
+# May 12, 2025
+This trend is not ethical or just a joke, this trend is not funny because it could really hurt someoone or damage property that you would have to pay for, and you don't want that. And how should we respond to this, we should try and stop the person from doing this because it is not smart. we have a lot of responsibilities when using school technology because they trust us not to break it, and we have to do work on the technology. the conquences of this behavior would be that they could not use the computers or be trusted with them ever again.
