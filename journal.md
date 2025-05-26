@@ -123,3 +123,9 @@ yes i believe 100 people can win against a gorilla because, there are strength i
 
 # May 12, 2025
 This trend is not ethical or just a joke, this trend is not funny because it could really hurt someoone or damage property that you would have to pay for, and you don't want that. And how should we respond to this, we should try and stop the person from doing this because it is not smart. we have a lot of responsibilities when using school technology because they trust us not to break it, and we have to do work on the technology. the conquences of this behavior would be that they could not use the computers or be trusted with them ever again.
+
+
+
+
+# May 19, 2025
+yes, i am ready for summer.
